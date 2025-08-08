@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **2k22.cse.2211602@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13ZFdF_2TMr_gF6r5T8mc6gE4A2CToK7-/view?usp=sharing](https://drive.google.com/file/d/13ZFdF_2TMr_gF6r5T8mc6gE4A2CToK7-/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/14uGR6D1o830bnA7az0KAcm5VJEubklUk/view?usp=sharing)
 
 - ⚡ Fun fact **I think I am Funny**
 
